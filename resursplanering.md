@@ -1,0 +1,1 @@
+# Övergripand planering av resurser
