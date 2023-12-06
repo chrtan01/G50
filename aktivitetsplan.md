@@ -1,8 +1,8 @@
 # H1 2024
 ## Aktiviteter Q1
-1. M
-1. M
-1. M
+1. Paradkalas
+1. Glassbar
+1. Öppen Bar i källarrestaurangen.
 ## Aktiviteter Q2
 1. M
 1. M
